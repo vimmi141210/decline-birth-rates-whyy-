@@ -1,1 +1,1 @@
-# decline-birth-rates-whyy-
+# Across the world, birthrates are falling, even as populations keep rising for now. This dives into the paradox: from Japan’s ghost villages record-low fertility to India’s looming OADR shift, we map how fewer births ripple into schools, jobs, taxes, and power. the “why” beyond changing marriage norms, career incentives, climate dread and yes, the real rupee cost of raising a child in 2025. This isn’t pro or anti-kids.
